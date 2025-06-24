@@ -1,6 +1,6 @@
 # 📁 Melissa Bazunu – Project Management Portfolio
 
-Welcome to my Project Management portfolio. I’m a dynamic and tech-savvy **Remote Project Manager** with 3+ years of experience managing EdTech, CRM, and digital transformation projects across Nigeria. My superpower? Turning chaos into clarity—on time, under budget, and with team synergy.
+Welcome to my Project Management portfolio. I’m a dynamic and tech-savvy **Remote Project Manager** with 1+ years of experience managing EdTech, CRM, and digital transformation projects across Nigeria. My superpower? Turning chaos into clarity-on time, under budget, and with team synergy.
 
 ---
 
